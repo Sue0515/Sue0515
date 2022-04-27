@@ -4,5 +4,5 @@ I am an aspiring cs master student at Stony Brook University.
 
 - 📫 How to reach me: suicho@cs.stonybrook.edu 
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: Benji is the world cutest orangutan. 
 
