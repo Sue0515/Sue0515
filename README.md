@@ -2,7 +2,6 @@
 
 I  am a master student at Stony Brook University. 
 
-- 📫 How to reach me: duinee.cho@gmail.com
-- 😄 Pronouns: she/her
-- ⚡ Fun fact: Benji is the world cutest orangutan. 
+- 📫 How to reach me: duinee.cho2@gmail.com
+
 
