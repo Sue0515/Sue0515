@@ -1,5 +1,6 @@
-## Hi there 👋
+### Hi there 👋
 
+- 📫 How to reach me: duinee.cho2@gmail.com
 <!--
 **Sue0515/Sue0515** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
